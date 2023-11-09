@@ -1,0 +1,2 @@
+In this session i learned and complete javascript and bootstrap . I done it well and put my maximum efforts in this session.I also want to cover little more topics in both.I little much improved my communication sklills
+i was little bit shivered in speaking english now i am little bit improved and i also done two projects regarding to the javascript and bootstrap.
